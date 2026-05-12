@@ -1,6 +1,6 @@
 # Privacy Policy for Multi-Calendar App
 
-**Last Updated:** May 12, 2024
+**Last Updated:** May 12, 2026
 
 ## Introduction
 
